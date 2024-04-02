@@ -37,6 +37,8 @@ Don´t cover me,I dont like it
 
  Please INT with me!! But keep in mind my status
 
+ Follow me! I follow back
+ 
  DONT boop me so much times,I really dont like it-
 
 Thats all<3
