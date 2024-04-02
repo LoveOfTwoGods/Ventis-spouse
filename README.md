@@ -7,11 +7,53 @@
 
 
 
-
-![32 sin título_20240327233315](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/f0a37811-147c-4a80-839c-05e436d9d22d)
-
+![animangas !](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/5c410336-9664-4fc4-88b7-eda824e23a6d)
 
 
-![00fd2d35](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/f161c9fa-971a-4eb1-8687-fcdcaf17c51f)
-  **VENTI SUPREMACY !!**![a2cd257c](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/ffe03a7a-6a89-4315-a8d9-0d97b2832e34)
+
+
+
+
+![450da4a9](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/cdc140e3-c803-41ee-a27a-48296cfb1c92)
+  ***VENTI SUPREMACY***![904808c8](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/ea21c244-2623-4ff3-bfa4-2d1ebc9644e3)
+
+  
+  Read PATREON for more information
+
+  ![pony-town-_Venti my beloved_-⋆｡°✩-lie-blinking-padded-4x (1)](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/c57b11a8-e6b7-4e11-bdd9-6a165c23fba1)
+
+
+  And I you dont want,okay! Going to say simple things
+  -
+ -She/He/They (Prefer He/Him)! 
+ 
+ -Call me Yuu/Yuuki/Shen/Nini/Venti ! Im okay with them
+ 
+ 22/11
+ 
+Don´t cover me,I dont like it
+
+ Also an artist~~ 
+
+ Please INT with me!! But keep in mind my status
+
+ DONT boop me so much times,I really dont like it-
+
+Thats all<3
+
+ -
+
+![f8214759](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/77a3251b-e74d-4e07-a213-f1a007ad17cb)
+ "The winds dance in your presence, for you their song they sing.
+And I, as the Anemo Archon, for you I play and sing.
+May our hearts entwine, with you the breeze I breathe, as you the stars of hope that I now cling..."![b544c288](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/b73c3d81-b8e4-453b-b3a6-2c874eea1289)
+
+
+
+
+![Venti Sneeze GIF - Venti Sneeze Genshin Impact - Discover   Share GIFs](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/f1076f2d-aa71-4fc3-a2e8-cff895a1519e)
+
+Love yall<3!!
+
+
 
