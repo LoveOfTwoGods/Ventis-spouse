@@ -47,7 +47,7 @@ Don´t cover me,I dont like it
 ![49 sin título_20240405015207](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/214a7bb0-b3c2-4ab8-b825-ea53a813af10)
 
 
-Looks bad Ik! 
+Looks bad Ik! But dont laugh LMAO...
  -
 
 ![f8214759](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/77a3251b-e74d-4e07-a213-f1a007ad17cb)
