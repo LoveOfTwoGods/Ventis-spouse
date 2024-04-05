@@ -35,8 +35,6 @@
 Don´t cover me,I dont like it
 
  Im hispanic and I speak spanish,my english is bad sometimes btw
- 
- Also an artist~~ Im a digital artist but I draw on the pc and with mouse,so my drawings are not that good...;D I dont care so much tho! Also traditional artist
 
  Please INT with me!! But keep in mind my status
 
@@ -44,8 +42,12 @@ Don´t cover me,I dont like it
  
  DONT boop me so much times,I really dont like it-
 
-Thats all<3
+ Also an artist~~ Im a digital artist but I draw on the pc and with mouse,so my drawings are not that good...;D I dont care so much tho
+ 
+![49 sin título_20240405015207](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/214a7bb0-b3c2-4ab8-b825-ea53a813af10)
 
+
+Looks bad Ik! 
  -
 
 ![f8214759](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/77a3251b-e74d-4e07-a213-f1a007ad17cb)
