@@ -36,7 +36,7 @@ Don´t cover me,I dont like it
 
  Im hispanic and I speak spanish,my english is bad sometimes btw
  
- Also an artist~~ 
+ Also an artist~~ Im a digital artist but I draw on the pc and with mouse,so my drawings are not that good...;D I dont care so much tho! Also traditional artist
 
  Please INT with me!! But keep in mind my status
 
