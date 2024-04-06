@@ -48,11 +48,8 @@ INFP
 
  Also an artist~~ Im a digital artist but I draw on the pc and with mouse,so my drawings are not that good...;D I dont care so much tho
  
-![49 sin título_20240405173744](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/cc9a2a03-caeb-48b6-b1d1-aee6a8dea1ee)
 
 
-
-Looks bad Ik! But dont laugh LMAO...
  -
 
 ![f8214759](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/77a3251b-e74d-4e07-a213-f1a007ad17cb)
