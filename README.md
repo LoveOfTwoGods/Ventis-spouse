@@ -38,7 +38,7 @@ Im shy and introverted,INT you first not me !!
 
 INFP
 
- Im hispanic and I speak spanish,my english is bad sometimes btw
+ Im colombian so,my english is bad sometimes btw
 
  Please INT with me!! But keep in mind my status
 
