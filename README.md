@@ -44,7 +44,7 @@ INFP
 
  Follow me! I follow back
  
- DONT boop me so much times,I really dont like it-
+ DONT boop me for INT,its so annoying you know?
 
  Also an artist~~ Im a digital artist but I draw on the pc and with mouse,so my drawings are not that good...;D I dont care so much tho
  
