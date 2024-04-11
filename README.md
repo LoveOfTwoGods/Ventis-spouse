@@ -40,7 +40,14 @@ INFP
 
  Im colombian so,my english is bad sometimes btw
 
- Please INT with me!! But keep in mind my status
+ Please INT with me!! But keep in mind my status:
+
+🟢: Online! INT pls!
+
+🌙: Probably playing,reading,watching videos.Not that busy...Or maybe Im offtab so you can INT but probably I won't answer so also w2i,cuddles are ok too!
+
+⛔:Busy or don't want to be bothered,maybe in bad mood ,you can still cuddle but pls dont INT
+
 
  Follow me! I follow back
  
