@@ -28,7 +28,7 @@
   -
  -She/He/They (Prefer He/Him)! 
  
- -Call me Yuu/Yuuki/Shen/Nini/Venti ! Im okay with them
+ -Call me Yuu/Yuuki/Shen/Nini/Venti ! Im okay with them,other nicknames are okay if you are my friend
  
  22/11
  
