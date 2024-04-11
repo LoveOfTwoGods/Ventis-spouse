@@ -19,7 +19,7 @@
   -
 
   
-  Read PATREON for more information
+  Read PATREON for more information,PLEASE
 
   ![pony-town-_Venti my beloved_-⋆｡°✩-lie-blinking-padded-4x (1)](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/c57b11a8-e6b7-4e11-bdd9-6a165c23fba1)
 
@@ -44,7 +44,7 @@ INFP
 
  Follow me! I follow back
  
- DONT boop me for INT,its so annoying you know?
+ DONT boop me for INT
 
  Also an artist~~ Im a digital artist but I draw on the pc and with mouse,so my drawings are not that good...;D I dont care so much tho
  
