@@ -46,7 +46,7 @@ INFP
 
 🌙: Probably playing,reading,watching videos.Not that busy...Or maybe Im offtab so you can INT but probably I won't answer so also w2i,cuddles are ok too!
 
-⛔:Busy or don't want to be bothered,maybe in bad mood ,you can still cuddle but pls dont INT
+⛔:Busy,don't want to be bothered or maybe in bad mood ,you can still cuddle but pls dont INT
 
 
  Follow me! I follow back
