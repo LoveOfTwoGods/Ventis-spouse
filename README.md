@@ -34,7 +34,7 @@
  
 Don´t cover me,I dont like it
 
-Im shy and introverted,INT you first not me !!
+Im shy and introverted,INT you first not me !! Atleast you are a friend that I have confidence
 
 INFP
 
