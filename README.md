@@ -54,6 +54,8 @@ INFP
  DONT boop me for INT
 
  Also an artist~~ Im a digital artist but I draw on the pc and with mouse,so my drawings are not that good...;D I dont care so much tho
+
+ And my main fandoms are Genshin Impact,Honkai Star Rail,Hazbin Hotel and JSHK !!
  
 
 
