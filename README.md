@@ -53,6 +53,10 @@ INFP
  
  DONT boop me for INT
 
+ ! I curse a lot
+
+ ! I like to flirt if I more confidance with you but If you don't like it,I stop doing it don't worry
+
  Also an artist~~ Im a digital artist but I draw on the pc and with mouse,so my drawings are not that good...;D I dont care so much tho
 
  And my main fandoms are Genshin Impact,Honkai Star Rail,Hazbin Hotel and JSHK !!
