@@ -57,6 +57,8 @@ INFP
 
  ! I like to flirt as a joke if I have more confidance with you but If you don't like it,I stop doing it don't worry
 
+ ! Sometimes I will say random things in spanish 
+
  Also an artist~~ Im a digital artist but I draw on the pc and with mouse,so my drawings are not that good...;D I dont care so much tho
 
  And my main fandoms are Genshin Impact,Honkai Star Rail,Hazbin Hotel and JSHK !!
