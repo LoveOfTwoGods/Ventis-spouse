@@ -55,7 +55,7 @@ INFP
 
  ! I curse a lot
 
- ! I like to flirt if I more confidance with you but If you don't like it,I stop doing it don't worry
+ ! I like to flirt as a joke if I more confidance with you but If you don't like it,I stop doing it don't worry
 
  Also an artist~~ Im a digital artist but I draw on the pc and with mouse,so my drawings are not that good...;D I dont care so much tho
 
