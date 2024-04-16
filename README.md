@@ -30,7 +30,7 @@
  
  -Call me Yuu/Yuuki/Shen/Nini/Venti ! Im okay with them,other nicknames are okay if you are my friend
  
- 22/11
+ Birthday on 22/11 !!
  
 Don´t cover me,I dont like it! Unless I don't tell you "Dont cover me", it means I gave you permission.
 
