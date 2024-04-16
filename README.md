@@ -32,7 +32,7 @@
  
  22/11
  
-Don´t cover me,I dont like it
+Don´t cover me,I dont like it! Unless I don't tell you "Dont cover me", it means I gave you permission.
 
 Im shy and introverted,INT you first not me !! Atleast you are a friend that I have confidence
 
