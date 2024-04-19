@@ -19,7 +19,7 @@
   -
 
   
-  Read PATREON for more information,PLEASE
+  Read PATREON for more information,PLEASE! Also sign guestbook
 
   ![pony-town-_Venti my beloved_-⋆｡°✩-lie-blinking-padded-4x (1)](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/c57b11a8-e6b7-4e11-bdd9-6a165c23fba1)
 
