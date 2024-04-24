@@ -21,11 +21,15 @@
   
   Read PATREON for more information,PLEASE! Also sign guestbook
 
-  ![pony-town-_Venti my beloved_-⋆｡°✩-lie-blinking-padded-4x (1)](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/c57b11a8-e6b7-4e11-bdd9-6a165c23fba1)
+![pony-town-_Memory of your beauty---_-lie-blinking-padded-ponyplush-4x](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/756dd227-705f-420e-b47c-8c4898ced635)
+
 
 
   And If you dont want,okay! Going to say simple things
-  -
+-
+  ![pony-town-_Barbatos's beloved_-stand-hearts-blinking-padded-ponyplush-4x](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/dec60db0-1f5f-4e3f-a3ad-98a9ff5842d6)
+
+  
  -She/He/They (Prefer He/Him)! 
  
  -Call me Yuu/Yuuki/Shen/Nini/Venti ! Im okay with them,other nicknames are okay if you are my friend
