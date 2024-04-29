@@ -55,7 +55,7 @@ INFP
 
  Follow me! I follow back
  
- DONT boop me for INT
+ DONT boop me for INT also I probably not going to boop back,like its annonying for me,sorry-But like I said, only for INT,then boop however you want
 
  ! I curse a lot
 
