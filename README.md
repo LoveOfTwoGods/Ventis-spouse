@@ -42,6 +42,8 @@ Im shy and introverted,INT you first not me !! Atleast you are a friend that I h
 
 INFP
 
+Not so much creative with the skins and I do whatever my mind says,so sorry If one of my skins are similar to yours,tell me and I change it,the same with the styles please.
+
  Im colombian so,my english is bad sometimes btw
 
  Please INT with me!! But keep in mind my status:
