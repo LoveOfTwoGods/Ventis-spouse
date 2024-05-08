@@ -21,13 +21,13 @@
   
   Read PATREON for more information,PLEASE! Also sign guestbook
 
-![pony-town-_Memory of your beauty---_-lie-blinking-padded-ponyplush-4x](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/756dd227-705f-420e-b47c-8c4898ced635)
+
+![pony-town-_Barbatos's Beloved_-sit-hearts-padded-ponyplush-4x](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/6f01b1dc-385a-4431-b943-8cc37f7b9b58)![pony-town-Won't you let my darling know_-sit-hearts-padded-ponyplush-4x](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/4fd6f1b2-08c3-423a-8b89-e1bb923ed76f)
 
 
 
   And If you dont want,okay! Going to say simple things
 -
-  ![pony-town-_Barbatos's beloved_-stand-hearts-blinking-padded-ponyplush-4x](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/dec60db0-1f5f-4e3f-a3ad-98a9ff5842d6)
 
   
  -She/He/They (Prefer He/Him)! 
