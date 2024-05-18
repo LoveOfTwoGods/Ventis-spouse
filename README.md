@@ -19,7 +19,7 @@
   -
 
   
-  Read PATREON for more information .Also sign guestbook
+  Read PATREON or CARRD for more information .Also sign guestbook
 
 
 ![pony-town-_Barbatos's Beloved_-sit-hearts-padded-ponyplush-4x](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/6f01b1dc-385a-4431-b943-8cc37f7b9b58)![pony-town-Won't you let my darling know_-sit-hearts-padded-ponyplush-4x](https://github.com/Ventis-spouse/Ventis-spouse/assets/154030415/4fd6f1b2-08c3-423a-8b89-e1bb923ed76f)
